@@ -1,4 +1,4 @@
-# master
+# About Me
 Hi there 👋
 Salutations, I'm Thisha pronounced T'hisha! 💻👋🏾
 
